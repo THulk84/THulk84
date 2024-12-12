@@ -1,5 +1,7 @@
 ## Hi there 👋
 
+- I'm currently working on getting my bachelor's degree in Church Leadership - Worship Ministry 
+
 <!--
 **THulk84/THulk84** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
